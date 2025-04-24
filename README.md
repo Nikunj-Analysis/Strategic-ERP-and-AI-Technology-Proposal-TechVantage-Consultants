@@ -1,0 +1,1 @@
+# Strategic-ERP-and-AI-Technology-Proposal-TechVantage-Consultants
